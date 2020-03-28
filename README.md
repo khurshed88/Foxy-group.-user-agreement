@@ -1,1 +1,1 @@
-# Foxy-group.github.io
+# Foxy-group/user agreement
